@@ -1,4 +1,4 @@
-# 
+# Create professional invoices and track time with FreshBooks Desktop: The easiest way for freelancers to manage projects and get paid.
 
 
 
